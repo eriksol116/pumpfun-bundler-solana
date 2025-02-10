@@ -10,10 +10,10 @@ You can send DM if you need advanced tools.
 
 ## Contact
 
-- discord: joni_727373
+- discord: erikerik116
 
 
-- telegram: @Akamala88071015
+- telegram: @erikerik116
 
 
 
